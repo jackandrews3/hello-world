@@ -2,4 +2,4 @@
 This is following the tutorial
 
 
-I emjoy music and running!
+I enjoy music and running!
